@@ -1,5 +1,5 @@
 # Danish Hajiameen
-![Exploring the Boundless, Creating the Extraordinary!]
+#### Exploring the Boundless, Creating the Extraordinary!
 A curious mind on a relentless quest for growth. I thrive in fast-paced environments, excel at effective communication, and have a knack for innovation. Let's connect and create something extraordinary! 🚀
 
 ## Skills and Experience
